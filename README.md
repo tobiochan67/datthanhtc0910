@@ -14,7 +14,7 @@
 
 📫 **Connect with me:**
 - Email: masonchelsea60@email.com
-- GitHub: [Your GitHub Profile](https://github.com/tobichan67)
+- GitHub: [Your GitHub Profile](https://github.com/tobiochan67)
 - Discord:tobiuchiha_3
 
 💡 *"Keep learning, keep growing!"* 🚀
