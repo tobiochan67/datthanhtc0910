@@ -13,8 +13,8 @@
 - Interests: Competitive Programming, Web Development, AI/ML (future goal)
 
 📫 **Connect with me:**
-- Email: your.email@example.com
-- GitHub: [Your GitHub Profile](https://github.com/yourusername)
-- Discord: YourDiscord#1234
+- Email: masonchelsea60@email.com
+- GitHub: [Your GitHub Profile](https://github.com/tobichan67)
+- Discord:tobiuchiha_3
 
 💡 *"Keep learning, keep growing!"* 🚀
